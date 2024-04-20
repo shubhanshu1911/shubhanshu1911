@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **shubhkhare19@gmail.com**
 
-- 📄 Know about my experiences [http://surl.li/sthzh](http://surl.li/sthzh)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1Yv6oUIBERFGvL3XkOdh2XbqQd42lr_5a/view?usp=sharing)
 
 
 <h3 align="left">Languages and Tools:</h3>
